@@ -1,6 +1,6 @@
 # welcome-
 name: ren..! 
-             # prns: he/him
+             # prns: any
 
 basic dni, just dont be rude..
 
